@@ -1,0 +1,1 @@
+# Talking-Translator-Pro-Full-Version
